@@ -8,11 +8,8 @@
 
 ✮⋆˙ Coding & innovation enthusiast
 
+* 🖥️  See my certificates & awards at [Certificates & Awards](http://drive.google.com/drive/folders/15F0BPfAMXZ-ryVUlvO3_Ty4OvVgYU033?usp=drive_link)
 * ✉️  You can contact me at [salwanajiha@graduate.utm.my](mailto:salwanajiha@graduate.utm.my)
-
-
-🖇️ https://drive.google.com/drive/folders/15F0BPfAMXZ-ryVUlvO3_Ty4OvVgYU033?usp=drive_link
-
 
 ### Skills 
 <p align="left">
