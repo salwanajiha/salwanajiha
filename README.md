@@ -3,7 +3,7 @@
 
 ✮⋆˙ UTM student enrolled in The Bachelor of Computer Science (Graphics & Multimedia Software) with Honours 
 
-✮⋆˙ 20 years old born in Kedah 
+✮⋆˙ 20 years old
 
 ✮⋆˙ Learning C++ language 
 
