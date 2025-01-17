@@ -1,7 +1,10 @@
 ⋆⭒˚.⋆ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Salwa Najiha! ⋆⭒˚.⋆
 ====================================================================================================================================
 
-✮⋆˙ UTM student enrolled in The Bachelor of Computer Science (Graphics & Multimedia Software) with Honours ✮⋆˙ 20 years old born in Kedah ✮⋆˙ Learning C++ language ✮⋆˙ Coding & innovation enthusiast
+✮⋆˙ UTM student enrolled in The Bachelor of Computer Science (Graphics & Multimedia Software) with Honours 
+✮⋆˙ 20 years old born in Kedah 
+✮⋆˙ Learning C++ language 
+✮⋆˙ Coding & innovation enthusiast
 
 * 🖥️  See my certificates & awards at [my Google Drive](http://drive.google.com/drive/folders/15F0BPfAMXZ-ryVUlvO3_Ty4OvVgYU033?usp=drive_link)
 * ✉️  You can contact me at [salwanajiha@graduate.utm.my](mailto:salwanajiha@graduate.utm.my)
