@@ -5,8 +5,6 @@
 
 ✮⋆˙ 20 years old
 
-✮⋆˙ Learning C++ language 
-
 ✮⋆˙ Coding & innovation enthusiast
 
 * 🖥️  See my certificates & awards at [my Google Drive](http://drive.google.com/drive/folders/15F0BPfAMXZ-ryVUlvO3_Ty4OvVgYU033?usp=drive_link)
